@@ -1,1 +1,1 @@
-# rsschool-cv
+https://cqvoch.github.io/rsschool-cv/
